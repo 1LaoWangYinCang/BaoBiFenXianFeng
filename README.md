@@ -1,15 +1,8 @@
-# JiSuTiYuShangCheng
+# ZhouYiDaShi
 
-JiSuTiYu is committed to promoting professional cool sports racing equipment, so that people can efficiently buy the best sports racing products in daily life. Our sports racing equipment is professional, safe and comfortable for you to experience the pleasure of racing.
+Our app is an online fortune-telling app of Zhouyi Guoxue master. You can know the fortune of the zodiac in this year on our app. You can also measure your fortune, future health and marriage fate through your own birth date. You can also know how to improve your fortune.
 
-- Our app shows a full range of sports racing gear, including sprinting cleats, cool roller skates, swimming fins, skateboarding and other sports racing gear. These categories of complete sports racing equipment can meet the user's selection and procurement.
+Our app calculates numerology by analyzing 12 zodiac signs and eight characters of birth day, and fills in the data of eight characters of generation. We will give you the most complete numerology report and give you the most professional experts to interpret. You can also view the year's zodiac signs and share the zodiac signs. Still can collect oneself numerology report at the same time convenient next time view.
 
-- Our app has classified these sports racing equipment in great detail, so that users can quickly find the racing products they want to buy.
-
-- Our APP introduces each product in detail, enabling you to fully understand these products, find your favorite sports racing equipment, and facilitate you to purchase and place orders.
-
-- Our app also has the function of commodity collection. Your favorite sports racing equipment can be collected into the collection list for your next browsing and placing orders.
-
-Professional and cool racing gear is all about JiSuTiYu.
-
-If you have any questions, please contact us as follows :chu83861niao@163.com
+ZhouYiDaShi allows you to understand your own numerology and provides a better direction for your future life.
+If you have any questions, please contact us as follows :pqkw80335ukh@sina.com
