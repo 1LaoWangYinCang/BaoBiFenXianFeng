@@ -1,11 +1,13 @@
-# BaoBiFenXianFeng
+# Daily Digital Information
 
-BaoBiFenXianFeng is dedicated to promoting professional fight fighting equipment so that people can purchase the best fight fighting equipment efficiently and effectively in their daily lives. At the same time can learn the basic knowledge of fighting boxing, but also can record the fighting boxing match at that time the situation and the score.
+Daily Digital Information is dedicated to the exchange and sharing of daily digital currency information, so that people can timely understand digital currency information, real-time news, industry information and other information in their daily life.
 
-Our app shows a full range of fighting gear, including boxing gloves, fight training equipment, fight protection, boxing fighting dress up and other fighting gear. These categories of complete sports racing equipment can meet the user's selection and procurement.
+You can get the market information of various digital currencies in real time. At the same time, you can easily book digital currency lectures.
 
-Our app introduces the basic knowledge of fight fight, so that you can know more about fight fight and fall in love with this sport. At the same time, it also introduces the function of recording the fighting record. You can record your favorite fighting match, record the score and situation at that time, and share the joy of victory to others.
+You can also express your opinions on digital currency in the topic circle and exchange your ideas with others.
 
-Combat equipment, beginner's choice, fist power strike!
+You can also put forward your own opinions on hot news and information, share news and information, collect valuable news and praise articles you think are good.
 
-If you have any questions, please contact us as follows :uirxg7@163.com
+Daily access to the latest digital currency information.
+
+If you have any questions, please contact us as follows :seeteqgbun@hotmail.com
